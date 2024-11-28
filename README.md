@@ -9,6 +9,6 @@
 
 ## Student Information
 
-Full Name: Chukwuma Angel
+Full Name: Arshpreet kaur
 
-Student Number: 041068750
+Student Number: 90541116319
